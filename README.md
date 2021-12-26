@@ -1,0 +1,1 @@
+# Average-spend-activities-and-length-of-visit-in-the-NZ-International-Visitor-Survey-by-ellis2013nz
